@@ -1,31 +1,27 @@
-
-<p align="center" dir="auto">
- <img src="https://cdn.discordapp.com/attachments/457027476632240138/1223015563014701207/wGwrUqBZSJCLQAAAABJRU5ErkJggg.png?ex=66185100&is=6605dc00&hm=b5ecf3abf1b28f22a8d93ec44a9ca1d0e769e6e0d100de7236b179b54f0af40d"  style="max-width: 100%;"></a>
-</p>
-⠀ ⠀ 
-
-<p align="center" dir="auto">
- <img src="https://64.media.tumblr.com/43aaac4e1e60f6037d5a4e6f3eba358f/73afa6c8ca0c6aee-21/s400x600/968381a46bb85b43755ce23044032836fc9adaba.pnj"  style="max-width: 100%;"></a>
+<p align="center">
+<img src="https://64.media.tumblr.com/32f2e03a80b6cb19bc9782ca2df424c9/9ad5af3483832be2-cb/s250x400/16cc8456f96b56b18ab197b4484fe7d4b4994af0.gifv"/>
 </p>
 
-⠀ ⠀ 
-<p align="center" dir="auto">
-$\Huge{\textsf{Azul or Ruggie. ⠀⠀─⠀⠀Mac is fine too, pronouns.cc is a bit outdated.}}$
+<p align="center">
+$\text{\color{#907594}{dance \ forever \ withㅤ\ me}}$
+
+<div align="center">
+
+###  [.co/-hellhounds](https://rentry.co/-hellhounds)   ㅤ[my husband](https://github.com/floydleech)ㅤ<p/>
+
+
+</p> 
+<p align="center">
+<img src="https://64.media.tumblr.com/5b6d6a50d986891d49f7d5144fdeaf4b/9ad5af3483832be2-1e/s640x960/93d31c8694350d84357016c799f98c3a1f6fa23a.gifv"/>
 </p>
 
-<p align="center" dir="auto">
-byf - $\color{teal}{\textsf{slow replies, it's nothing against you just be patient.}}$
-</p>
-<p align="center" dir="auto">
-dni - $\color{teal}{\textsf{don't be gross or annoying.}}$
-</p>
-<p align="center" dir="auto">
-interests - $\color{teal}{\textsf{LMK, DGMN, PKMN, TWST, HSR, Genshin, etc. really just ask.}}$
+<div align="center">
+
+$\text{\color{#c4aaab}{azul   \ ─ \  any prns }}$
+
+
+<p align="center">
+<img src="https://64.media.tumblr.com/970128695452618ab16ff0fad65e3ff4/9ad5af3483832be2-c7/s540x810/5ab7cb669ef876e951ca0fe78eef58705822be75.pnj"/>
 </p>
 
-⠀ ⠀ 
-<p align="center" dir="auto">
- <img src="https://64.media.tumblr.com/242670e68f71e69a9daaa76f66481e85/89b98c8f9d1f5152-a5/s400x600/78af777c3126975570193243990e73b7970e8353.pnj"  style="max-width: 100%;"></a>
-</p>
-
-![image](https://64.media.tumblr.com/49f490ea8e0b31cc534688a1071da56a/2f18aea01ba0b771-0b/s2048x3072/2e1f1649b0003749a69e263c5f5f08c5bccf7308.jpg)
+<div align="left">

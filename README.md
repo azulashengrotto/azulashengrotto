@@ -7,7 +7,7 @@ $\text{\color{#907594}{dance \ forever \ withㅤ\ me}}$
 
 <div align="center">
 
-###  [.co/-hellhounds](https://rentry.co/-hellhounds)   ㅤ[my husband](https://github.com/floydleech)ㅤ<p/>
+###  ㅤ[my husband](https://github.com/floydleech)ㅤ<p/>
 
 
 </p> 
